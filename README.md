@@ -1,0 +1,2 @@
+# Suniy--intelekt
+organish uchun
